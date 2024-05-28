@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to code... not quite successful tbh
 - 📫 How to reach me lena.voelker@hotmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: if met the President of Ireland 
+- ⚡ Fun fact: i´ve met the President of Ireland 
 
 <!---
 LenaVoelker/LenaVoelker is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
