@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LenaVoelker
 - 👀 I’m interested in sport, dancing and languages
-- 🌱 I’m currently learning to code... not quite successful tbh
+- 🌱 I’m currently learning to code... not quite successfully tbh
 - 📫 How to reach me lena.voelker@hotmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i´ve met the President of Ireland 
